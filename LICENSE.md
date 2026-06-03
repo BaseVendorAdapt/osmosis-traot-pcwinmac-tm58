@@ -1,4 +1,4 @@
-# 
+# Élite osmosis trading bot preajustes para Mac OS | Nativo osmosis trading bot preajustes para PC Windows. Con seguimiento de pérdida impermanente y órdenes stop-loss — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
